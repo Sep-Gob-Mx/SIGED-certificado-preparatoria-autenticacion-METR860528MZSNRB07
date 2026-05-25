@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-METR860528MZSNRB07
+METR860528MZSNRB07
